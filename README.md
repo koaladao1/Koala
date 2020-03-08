@@ -1,2 +1,2 @@
 # Koala
-Thought &amp; Record &amp; Share
+Here is my Thought &amp; Record &amp; Share places.
